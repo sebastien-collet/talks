@@ -1,1 +1,1 @@
-Ressource from various talks
+Ressources from various talks
